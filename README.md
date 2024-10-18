@@ -7,7 +7,7 @@
 
 - 🌱 I’m currently learning **DSA**
 
-- 📫 How to reach me **workwithnauman@proton.me**
+- 📫 How to reach me **workwithnauman@gmail.com**
 
 - ⚡ Fun fact **I think I am indeed funny**
 
